@@ -1,3 +1,8 @@
+# Foreward
+I’m autistic and have ADHD. That’s a loaded statement, I know, but it’s key to understanding why these next words might sound like I’m writing a tear-stained eulogy for an app. Because, to me, it was never just an app. TikTok was a community, a support system, a place where I found people who thought and felt as I do. Losing it meant losing a whole network of inside jokes and genuine empathy.
+
+If you read this and think, “That’s intense—maybe a bit over the top for social media,” then this piece probably isn’t for you. But if the idea of losing your digital safe space strikes a nerve—if you’ve ever relied on an online corner of the world to feel understood—then these words are my “message in a bottle.” Welcome. I hope they resonate.
+
 # **A Firsthand Requiem for the TikTok Ban (January 19th, 2025)**
 
 I vowed to scroll until the universe unraveled -- or my thumbs cramped -- whichever came first. Videos from the corners of my carefully curated niches danced across the screen: cozy glimpses of fuzzy-sock moments before a warm fire, comedic outbursts that soared with shrieking laughter, and heartfelt confessions spiraling into tears that lulled me into a strange comfort. They all glowed with an uncanny aliveness, like twinkling constellations in a night sky we once believed infinite.
