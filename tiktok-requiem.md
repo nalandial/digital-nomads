@@ -22,7 +22,7 @@ She was dying in my arms. And all I could do was watch.
 
 At last, the feed coughed up one final video. Time collapsed into a single, breathless moment. *Is this it?* I tapped the screen with the trepidation of a child poking a dead bird, expecting it to move but half-fearing it wouldn’t. The feed rubber-banded, unyielding, a silent confirmation that the end was near. My internet connection was perfectly fine -- unfortunately for me. I tried in vain to salvage the video, to preserve it. Screen capture would have to suffice. My heart pounded against my ribs, a twisted medley of excitement, grief, and reluctant acceptance.
 
-In that moment, I realized the ephemeral nature of every platform we hold dear. This new digital diaspora reminded me of the relics of Myspace, Xanga, AIM, ICQ -- empires long since crumbled into archaic code. We drift like nomads, carrying intangible relics of our past: dusty chat logs, half-remembered memes, and the faint echo of the first time someone typed “lol.” Each diaspora grows a touch easier to endure, maybe, but never less painful.
+In that moment, I realized the ephemeral nature of every platform we hold dear. This new digital diaspora reminded me of the relics of Vine, Myspace, Xanga, AIM, ICQ -- empires long since crumbled into archaic code. We drift like nomads, carrying intangible relics of our past: dusty chat logs, half-remembered memes, and the faint echo of the first time someone typed “lol.” Each diaspora grows a touch easier to endure, maybe, but never less painful.
 
 And so I pressed play:
 
