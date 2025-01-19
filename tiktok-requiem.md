@@ -4,7 +4,7 @@ I’m autistic and have ADHD. That’s a loaded statement, I know, but it’s ke
 
 Like many creative people, I explore my grief through art, but have never published anything. This piece is the window into my mind I wish I’d had when I first realized I experience the world differently. To me, TikTok was never just an app. It was a community, a support system, a place where I found people who thought and felt as I do. Losing it meant losing a whole network of inside jokes and genuine empathy.
 
-If you read this and think, "That’s intense -- maybe a bit over the top for social media," then this piece probably isn’t for you. But if the idea of losing your digital safe space strikes a nerve -- if you’ve ever relied on an online corner of the world to feel understood -- then these words are my message in a bottle." Welcome. I hope they resonate.
+If you read this and think, "That’s intense -- maybe a bit over the top," then this piece probably isn’t for you. But if the idea of losing your digital safe space strikes a nerve -- if you’ve ever relied on an online corner of the world to feel understood -- then these words are my message in a bottle." Welcome. I hope they resonate.
 
 # A Firsthand Requiem for the TikTok Ban (January 19th, 2025)
 
